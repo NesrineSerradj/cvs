@@ -1,7 +1,7 @@
 # **Nesrine Célia Serradj Touati**  
 **Professeure particulière expérimentée et polyvalente**  
 
-![Photo de Nesrine](https://media.licdn.com/dms/image/v2/D4E03AQEjhFi4bsl81g/profile-displayphoto-shrink_800_800/B4EZPGY0rSHsAc-/0/1734200218771?e=1740009600&v=beta&t=29GCi0kpnv8IJsFux-H6CwQbBmat3c6GAUy8H6JnGxk)  
+<img src="https://media.licdn.com/dms/image/v2/D4E03AQEjhFi4bsl81g/profile-displayphoto-shrink_800_800/B4EZPGY0rSHsAc-/0/1734200218771?e=1740009600&v=beta&t=29GCi0kpnv8IJsFux-H6CwQbBmat3c6GAUy8H6JnGxk" alt="Photo de Nesrine" width="150" />
 
 📍 Le Vésinet (disponible en présentiel ou en ligne)  
 📧 nesrine.serradj@etu.utc.fr | 📞 +33 6 40 74 17 98  
