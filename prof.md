@@ -51,7 +51,7 @@ Partager mes connaissances et accompagner des élèves de tous âges dans leur r
 
 ## **💼 Expériences d’enseignement**  
 
-### **Tutrice ** (2017-2023)  
+### ** Tutrice ** (2017-2023)  
 - Accompagnement d’élèves du primaire au supérieur, en individuel et en petits groupes d'élèves en difficulté.  
 - Soutien scolaire en maths, français et langues.  
 - Préparation d’élèves aux examens.  
