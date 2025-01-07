@@ -1,9 +1,9 @@
 # **Nesrine Célia Serradj Touati**  
-**Professeure particulière expérimentée et polyvalente**  
+**Professeure particulière expérimentée et versatile**  
 
 <img src="https://media.licdn.com/dms/image/v2/D4E03AQEjhFi4bsl81g/profile-displayphoto-shrink_800_800/B4EZPGY0rSHsAc-/0/1734200218771?e=1740009600&v=beta&t=29GCi0kpnv8IJsFux-H6CwQbBmat3c6GAUy8H6JnGxk" alt="Photo de Nesrine" width="150" />
 
-📍 Le Vésinet (disponible en présentiel)  
+📍 Montesson (disponible en présentiel)  
 📧 nesrine.serradj@etu.utc.fr | 📞 +33 6 40 74 17 98  WhatsApp Uniquement
 
 ---
@@ -34,7 +34,7 @@ Partager mes connaissances et accompagner des élèves de tous âges dans leur r
   UTSEUS – Shanghai Université (en cours).  
   - **Matières clés** : Management, marketing, leadership, gestion d’équipes et projets innovants.  
   - **Compétences acquises** : Communication claire, gestion stratégique, travail d’équipe multiculturel.  
-=
+
 - **Erasmus à Berlin**  
   Études en gestion de projet et apprentissage des langues.  
   - Développement d’une méthodologie rigoureuse pour organiser et exécuter des projets.  
@@ -51,18 +51,17 @@ Partager mes connaissances et accompagner des élèves de tous âges dans leur r
 
 ## **💼 Expériences d’enseignement**  
 
-### **Professeure particulière indépendante** (2017-2023)  
-- Accompagnement d’élèves du primaire au supérieur, en individuel et en petits groupes.  
-- Soutien scolaire en maths, français et langues, avec des progrès visibles dès le premier trimestre.  
-- Préparation d’élèves au bac avec un taux de réussite de 100 %.  
+### **Tutrice ** (2017-2023)  
+- Accompagnement d’élèves du primaire au supérieur, en individuel et en petits groupes d'élèves en difficulté.  
+- Soutien scolaire en maths, français et langues.  
+- Préparation d’élèves aux examens.  
 
-### **Enseignante bénévole – Entraide Tiers-Monde (ETM)** (*2020*)  
+### **Enseignante bénévole ponctuelle – Entraide Tiers-Monde (ETM)** (*2020*)  
 - Enseignement à des jeunes migrants pour les aider à s’intégrer et réussir leur parcours éducatif.  
-- Création d’ateliers interactifs combinant apprentissage et discussions culturelles.  
 
 ### **Soutien scolaire et garde d’enfants** (*2013-2019*)  
-- Soutien aux devoirs pour une enfant anglophone (primaire et collège).  
-- Renforcement des bases en langues (anglais, français) et en mathématiques.  
+- Soutien aux devoirs pour une enfant anglophone (primaire et collège) de niveau avancé.  
+- Renforcement des bases en français, histoire, géographie, sciences et en mathématiques.  
 
 ---
 
